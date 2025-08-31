@@ -1,0 +1,1 @@
+# Selector-metodolog-as
